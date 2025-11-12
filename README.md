@@ -1,1 +1,0 @@
-# 2006yang.github.io
